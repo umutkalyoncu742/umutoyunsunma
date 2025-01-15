@@ -1,2 +1,0 @@
-# umutoyunsunma
-umut oyun sunar
